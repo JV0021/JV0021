@@ -4,5 +4,7 @@
 
 -Sou aluno do ensino médio do estado de São Paulo
 
--![](https://media.tenor.com/_rrC613KIJMAAAAM/the-simpsons-homer-simpson.gif)
+-Estudo em uma escola
 
+-Quero money
+-![](https://media.tenor.com/_rrC613KIJMAAAAM/the-simpsons-homer-simpson.gif)
